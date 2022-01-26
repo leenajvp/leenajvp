@@ -1,4 +1,4 @@
-### Hi there 👋
+### Welcome to my profile!
 
 - 😄 Pronouns: she/her
 -  :sparkles: Check out my [Portfolio](https://www.leenajvp.co.uk/) 
