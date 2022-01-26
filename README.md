@@ -2,7 +2,6 @@
 
 - 😄 Pronouns: she/her
 -  :sparkles: Check out my [Portfolio](https://www.leenajvp.co.uk/) 
-- ⚡ Fun fact: My dog is named after the former prime minister of Finland
 - :busts_in_silhouette: Connect in [LinkedIn](https://www.linkedin.com/in/leenaj10/)
 - :mailbox: Contact me: leena.jarvenpaa@windowslive.com
 
