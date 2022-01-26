@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-**leenajvp/leenajvp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 - 😄 Pronouns: she/her
 -  :sparkles: Check out my [Portfolio](https://www.leenajvp.co.uk/) 
 - ⚡ Fun fact: My dog is named after the former prime minister of Finland
